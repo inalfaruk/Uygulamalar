@@ -1,1 +1,1 @@
-# Uygulamalar
+farukinal.com - uygulamalar
